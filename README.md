@@ -1,3 +1,6 @@
+
+https://mikeglatzerphotos.com/my-portrait-session-emergency-kit-the-oh-sht-kit/
+
 Robert Gullick
 
 https://www.photocrowd.com/photographer-community/321988/
