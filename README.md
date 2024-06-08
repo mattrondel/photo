@@ -1,3 +1,5 @@
+ “Expose for the shadows; develop for the highlights.”  -Ansel Adams
+
 
 https://mikeglatzerphotos.com/my-portrait-session-emergency-kit-the-oh-sht-kit/
 
